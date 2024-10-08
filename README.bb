@@ -1,6 +1,6 @@
 [size=6]Horker Tusk Homestead[/size]
 [size=4]
-Horker Tusk Homestead features the best views in the realm of Winterhold College and the Northeastern coastline. Available today and move-in ready, this fully-furnished home can be yours for 9,600 gold coins. With only one previous owner and a steward already living on-site, you won't find a greater bargain in this freezing hold.
+Horker Tusk Homestead features the best views in the realm of Winterhold College and the Northeastern coastline. Available today and move-in ready, this fully-furnished home can be yours for 9,600 gold coins. With only one previous owner and a steward already living on-site, you won't find a greater bargain in this freezing hold. Don't forget to grab the 'Horker Heaver' off the wall, for fighting tusked creatures.
 
 Speak to Rakel Gunthe at The Frozen Hearth in Winterhold to purchase the deed.
 
